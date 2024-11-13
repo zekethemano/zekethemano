@@ -1,7 +1,7 @@
 ## Hi, I'm Zack! 
 
 # 💫 About Me:
-🔭 Aerospace and Mechanical Engineer documenting my journey
+🔭 Aerospace and Mechanical Engineer 
 
 
 ## 🌐 Socials:
